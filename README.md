@@ -1,1 +1,1 @@
-# Exercecios-Lista-1-Professor-Jeofton
+# Exercicios-Lista-1-Professor-Jeofton
